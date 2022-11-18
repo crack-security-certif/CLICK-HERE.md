@@ -6,7 +6,7 @@
 # **Office**
 
 # **Games** </br>
-### ------survive------ </br>
+### ------Survive------ </br>
 - [Raft](https://mega.nz/file/t2hxnQLL#jofPQH6qfGGt4Rfy13rOsDZt3ZJjiMPMjrLZPkHHDU0) </br>
 - [Minecraft](https://tlauncher.org/en/) </br>
 - [Stranded Deep](https://mega.nz/file/0SQBUK6I#DfFWW3SpAzmHEcdDBPIi4HIDRo2dW5HA-hJxUxJ6kyI) </br>

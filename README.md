@@ -10,7 +10,8 @@
 - [Raft](https://mega.nz/file/t2hxnQLL#jofPQH6qfGGt4Rfy13rOsDZt3ZJjiMPMjrLZPkHHDU0) </br>
 - [Minecraft](https://tlauncher.org/en/) </br>
 - [Stranded Deep](https://mega.nz/file/0SQBUK6I#DfFWW3SpAzmHEcdDBPIi4HIDRo2dW5HA-hJxUxJ6kyI) </br>
-- [Subnautice Bellow Zero](https://drive.google.com/file/d/1SxbL8zMPCgj5yCwogf49qxlPkfvW-X9x/view)
+- [Subnautice Bellow Zero](https://drive.google.com/file/d/1SxbL8zMPCgj5yCwogf49qxlPkfvW-X9x/view) </br>
+- [The Forest](https://mega.nz/file/ew9AGYLA#yyVw3rFoDd5Nl4yxRs8828h9EQesU01-Wld29FxeIww) </br>
 ### ------Call Of Duty------ </br>
 - [Call Of Duty MW2](https://drive.google.com/uc?id=1g0uuDdEpANDKIjC7U7wQAeZI2SYjA6zD) </br>
 - [Call Of Duty Ghost](https://gofile.io/d/xR7OTK) </br>
@@ -22,7 +23,8 @@
 - [Far Cry 4](https://gofile.io/d/fCUAZV) </br>
 - [Far Cry 5](https://gofile.io/d/6p95uf) </br>
 - [Assasin Creed Origin](https://gofile.io/d/s0tIV9) </br>
-- [Assasin Creed 2](https://drive.google.com/uc?id=1erXzA-0bo5Mqznq1DfbumFyGGhBL9XIo)
+- [Assasin Creed 2](https://drive.google.com/uc?id=1erXzA-0bo5Mqznq1DfbumFyGGhBL9XIo) </br>
+- [The Escapiste](https://mega.nz/file/5ftQWbLC#iNDeoPzUQd4qt4NDzPsxkksBHPxH8WY3bvpB5xiS5v4) </br>
 ### ------Marvel------ </br>
 - [Spider-Man Remastered](https://gofile.io/d/7iofgs)
 

@@ -44,3 +44,11 @@
 - [Euro Truck Simulator](https://drive.google.com/drive/folders/1nVy9lfEdupXTyn_aAGaLCNoTz27cosMs) </br>
 - [Farming Simulator 2022](https://gofile.io/d/XbVCM5) </br>
 - [Farming Simulator 2019](https://drive.google.com/uc?id=16Xwwsf_McyR95m8ZQcaEmhVYX8Tzq5dJ) </br>
+- [PC Building Simulator](https://drive.google.com/uc?id=14zyBBqrMdJXgO08sHsnYq8RtP0gVBU91) </br>
+- [PC Building Simulator 2](https://drive.google.com/drive/folders/1m55larcIKVBwM3JcWzKz9gkNfQoC8kYU) </br>
+- [Police Simulator](https://drive.google.com/uc?id=1PjXcAoiQpmM29RuNXiqf4534mAkFiOCk) </br>
+- [Prison Simulator](https://mega.nz/file/WcYCRTIL#L8XQeYaKUg0jtvwJLz5F06u5hgm_JmGuOb1RNz8hgKo) </br>
+
+
+
+

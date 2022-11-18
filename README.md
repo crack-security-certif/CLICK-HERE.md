@@ -34,8 +34,13 @@
 - [Escape The BackRoom](https://mega.nz/file/YDVVTb4A#MsPWFOZoNMJISBnBJJGY4PB7qa0Zw2-zLZPHezdvUek) </br>
 - [Inside The BackRoom](https://mega.nz/file/4PMmTQCS#R198U5VOHUCWxcrOs_y2_IwEK766HtE3wL-o2w9Rn34) </br>
 
-### ------Lego------
+### ------Lego------ </br>
 - [Lego city undercover](https://gofile.io/d/lH6dZq) </br>
 - [Lego stars Wars skywalker Saga](https://gofile.io/d/Ol11ZW) </br>
-
-
+### ------Simulator------ </br>
+- [Bus Simulator 2021](https://drive.google.com/uc?id=19viCtNWCAKyuAoo-eXzEU8Kl8K-9nc29) </br>
+- [Bus Simulator 2016](https://mega.nz/file/QhMlTYqZ#AERZTBxmASnjVZSmkfhKX-uS4-ox6fk9akcW1Bvq7rM) </br>
+- [Car Mecanique Simulator 2021](https://drive.google.com/uc?id=10sKN9IpLa8xRtsygguJe_SbYFGCzdLIU) </br>
+- [Euro Truck Simulator](https://drive.google.com/drive/folders/1nVy9lfEdupXTyn_aAGaLCNoTz27cosMs) </br>
+- [Farming Simulator 2022](https://gofile.io/d/XbVCM5) </br>
+- [Farming Simulator 2019](https://drive.google.com/uc?id=16Xwwsf_McyR95m8ZQcaEmhVYX8Tzq5dJ) </br>

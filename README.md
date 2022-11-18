@@ -8,6 +8,9 @@
 # **games** </br>
 ### ------survive------ </br>
 - [Raft](https://mega.nz/file/t2hxnQLL#jofPQH6qfGGt4Rfy13rOsDZt3ZJjiMPMjrLZPkHHDU0) </br>
+- [Minecraft](https://tlauncher.org/en/) </br>
+- [Stranded Deep](https://mega.nz/file/0SQBUK6I#DfFWW3SpAzmHEcdDBPIi4HIDRo2dW5HA-hJxUxJ6kyI) </br>
+- 
 ### ------call of duty------ </br>
 - [call of duty MW2](https://drive.google.com/uc?id=1g0uuDdEpANDKIjC7U7wQAeZI2SYjA6zD) </br>
 - [call of duty Ghost](https://gofile.io/d/xR7OTK) </br>
@@ -20,4 +23,11 @@
 - [far cry 5](https://gofile.io/d/6p95uf) </br>
 ### ------Marvel------ </br>
 - [spider-man Remastered](https://gofile.io/d/7iofgs)
+
+### ------Horror------ </br>
+- [five Night at Freedy's 1](https://mega.nz/file/jhdCyaTa#c6veCo4kFGs0pWZDPwa7EZid3LhDKMQrB3bFyrC6WbI) </br>
+- [five Night at Freedy's 2](https://mega.nz/file/2xcA1QhK#ToOjiptPPSPLZSd5YGwoEsqYgsBZP-3cVhYNxpfIWyo) </br>
+- [five Night at Freedy's 3](https://mega.nz/file/b5U0iCbR#POpezqMtpsvBlo6VYw8BgwQ8jhKm527ru4NbT0BYntE) </br>
+- [five Night at Freedy's 4](https://mega.nz/file/KhNW1SxB#eIgftTfSsD4MjxHyml-btQsAieDRCybbRnL31v8IyH4) </br>
+- 
 

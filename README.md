@@ -12,6 +12,7 @@
 - [Stranded Deep](https://mega.nz/file/0SQBUK6I#DfFWW3SpAzmHEcdDBPIi4HIDRo2dW5HA-hJxUxJ6kyI) </br>
 - [Subnautice Bellow Zero](https://drive.google.com/file/d/1SxbL8zMPCgj5yCwogf49qxlPkfvW-X9x/view) </br>
 - [The Forest](https://mega.nz/file/ew9AGYLA#yyVw3rFoDd5Nl4yxRs8828h9EQesU01-Wld29FxeIww) </br>
+- [GTA 4](https://gofile.io/d/Xd8njt) </br>
 ### ------Call Of Duty------ </br>
 - [Call Of Duty MW2](https://drive.google.com/uc?id=1g0uuDdEpANDKIjC7U7wQAeZI2SYjA6zD) </br>
 - [Call Of Duty Ghost](https://gofile.io/d/xR7OTK) </br>
@@ -50,6 +51,7 @@
 - [PC Building Simulator 2](https://drive.google.com/drive/folders/1m55larcIKVBwM3JcWzKz9gkNfQoC8kYU) </br>
 - [Police Simulator](https://drive.google.com/uc?id=1PjXcAoiQpmM29RuNXiqf4534mAkFiOCk) </br>
 - [Prison Simulator](https://mega.nz/file/WcYCRTIL#L8XQeYaKUg0jtvwJLz5F06u5hgm_JmGuOb1RNz8hgKo) </br>
+- [Thief Simulator](https://mega.nz/file/CUo3CCwB#fvfwhOC7t1fHnmjhiUvLQwN0-k4J37BWd9UrdF8Tygw)
 
 
 
